@@ -1,2 +1,2 @@
 # badlovv
-Vladimir Badlo
+Vladimir Badlo (https://data.mail.ru/profile/v.badlo/)
